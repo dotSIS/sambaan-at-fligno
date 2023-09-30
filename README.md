@@ -1,1 +1,1 @@
-Learn@Fligno
+Jezzrel Aladdin S. Sambaan, INTERN
